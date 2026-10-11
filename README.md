@@ -1,2 +1,0 @@
-# Zuperzuz
-Dunia tanpa batas
